@@ -1,0 +1,7 @@
+Zekka, or Zee as she prefers, is an almost feral pilot who's ferocity, intensity, and ruthlessness in combat is rarely matched, friend or foe. Born and raised in an anarchistic penal colony, her memories only include fighting other children for food, forced to work 12 hour days once she was physically able to, and honing her senses as she stayed up at night to make sure she wasn't getting a knife to the throat. With the disbanding of prison worlds and now a free woman, she is left with nothing but a thirst to find purpose, clawing and tearing through anything in her way the only way she knows: violence.
+
+After the events of Daybreak, Zee found her stride and purpose in life, taking up any front line assignments on the Rio in order to hone her fighting sense, feed her growing blood-lust and condition her brain to release serotonin from the intense heat her mech would produce on the forefront of combat. She could never find a permanent place on another squad and failed to make friends on the battlefield other than other near-insane pilots and murderous NHPs as many found that her casualties on the battlefield which included non-combatants, hostiles, and even friendlies alike was too distasteful for their tastes. Adrenaline junkie, psychopath, and feral beast were only a few choice words thrown at her, yet nothing could continue to excite her less once her somewhat augmented form jacked into her one true calling. 
+
+## Trivia
+
+* Is not a nerd like the rest of y'all
